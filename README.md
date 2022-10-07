@@ -1,6 +1,6 @@
 - English 👁👁👃🏻👁👁 :
   - 🔭 Hi Folks, my name is Abdul-Aziz, but I prefer naming me azizano ( don't ask me, ask ... )
-  - 🌱 I like what everybody hates, anything makes me know about the universe I live in interests me and makes me study it, Here Are Some Examples :
+  - 🌱 I like what everybody hates, anything makes me know about the universe which I live in interests me and makes me study it, Here Are Some Examples :
       - Math 
       - Chemistry 
       - Computer Science 

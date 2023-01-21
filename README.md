@@ -16,7 +16,7 @@
   - 💬 Contact Me : 
       - Instagram          : mohp33.lr6 ( Disabled right now till I graduate in 2023 )
       - Twitter            : AlrashedAzizan 
-      - Whatsapp           : +965 96656665 
+      - Whatsapp           : +965 96656685 
       - Discord            : ! 𝑺𝑰𝑹 | JoyBoy#4820 
       - Playstation 👁👃🏻👁 : azizano_935
 ---------------------------------

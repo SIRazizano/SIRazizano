@@ -1,47 +1,16 @@
-- English 👁👃🏻👁 :
-  - 🔭 Hi Folks, my name is Abdul-Aziz, but I prefer naming me azizano ( don't ask me, ask ... )
-  - 🌱 I like what everybody hates, anything makes me know about the universe which I live in interests me and makes me study it, Here Are Some Examples :
+  - 🔭 Hi Folks, my name is Abdul-Aziz, but I prefer naming me Aziz ( don't ask me, ask ChatGPT )
+  - 🌱 I like what everybody hates, anything makes me in knowledge about the universe that I live in interests me and makes me study it, Here are some :
       - Math 
       - Chemistry 
-      - Computer Science 
-      - Web Development 
       - Physics
+      - Web Development 
+      - Computer Science 
   - 👯 Currently Learning : 
       - Web Development 
-      - Game Development 
       - Math 
       - Graphic Design
-      - Motion Graphics
-  - 🤔 If you know me well, you should see me always studying, searching, doing everything no one in my age does; I do all that stuff because I know my death is not a pen which i write and lift with my commands; so I have to learn as much as I can about my life before I leave it as an ignorant
-  - 💬 Contact Me : 
-      - Instagram          : mohp33.lr6 
-      - Twitter            : AlrashedAzizan 
+  - 🤔 If you know me well, you should see me always studying, searching, doing everything no one in my age does; I do all that stuff because I know my death is not a pen which i write and lift as much as I want; so I have to learn as much as I can about my life before I leave it as an ignorant
+  - 💬 Contact : 
+      - Instagram          : 5uifp
       - Whatsapp           : +965 96656685 
       - Discord            : ! 𝑺𝑰𝑹 | JoyBoy#4820 
-      - Playstation 👁👃🏻👁 : azizano_935
----------------------------------
-- يالله عربي؟ 👁👃🏻👁 :
-  - 🔭 حي الله الشباب، اسمي عزيز، بس الناس وايد ينادوني 🌟 عزيزانو 🌟 لأني سميت نفسي جذي، تسألني ليش؟ أجاوبك مادري 
-  - 🌱 أنا أحب أشياء وايد ألاحظ الناس أغلبها تكرهها، أي شي يخليني أفهم الحياة إلي أنا عايش فيها والكون إلي أنا عايش فيه يهمني ويخليني أدرسه وأبحث عنه وأفهمه. ومن هذي الأشياء إلي حاليا قاعد أدرسها :
-    - الرياضيات ( إلا الاحتمال والإحصاء إلي مع الأسف يعتبرون أهم أفرع الرياضيات )
-    - الكيمياء وتركيبة الكون 
-    - الفيزياء ودراسة التغيرات التي تطرأ على تركيبة الكون 
-    - علوم الكمبيوتر
-    - تطوير المواقع
-    - والنحو والثقافة الشعرية ( ما كتبت هالشي بالإنقلشيزي )
-  - 👯 حاليا قاعد أدرس :
-    - تطوير المواقع
-    - تطوير الألعاب 
-    - علم الرياضيات 
-    - التصميم الجرافيكي ( قرافك ديزاين )
-    - صناعة المحتوى بالتأثيرات الحركية
-
-  - إذا كنت تعرفني عدل، فالمفروض تعرف أني أغلب الأوقات أدرس أو أقرأ كتب في بعضضضضضضض الحالات الشاذة، وأبحث، وأسوي وايد أشياء إلي أي شخص بعمري ما يسويها لأنه لي الحين صغير عليها؛ ليش؟ لأني أدري أن الموت مهو بقلم أكتب فيه وقت ما أبي وأرفعه وقت ما أبي، إذا اعتبرنا الموت قلم، فهو إلي يكتب حياتنا بكتاب، لكن إذا انرفع هذا القلم، ما راح يكتب شي مرة ثانية؛ فعشان جذي قاعد أحاول أتعلم أشياء وايد لأني أبي أعيش تجربة العلماء قبل لا هذا القلم ينرفع عن كتاب حياتي وتروح مني هذي الفرصة العظيمة أني أتعلم عن دنيتي قبل لا ترحب فيني الآخرة
-  - 💬 تواصل معاي :
-    - <---------- فاصلة عربية ---------->
-    -  انستقرام         : mohp33.lr6
-    -   تويتر           : AlrashedAzizan
-    -   واتساب          : +965 96656685
-    -   ديسكورد         : ! 𝑺𝑰𝑹 | JoyBoy#4820
-    -   بليستيشن 👁👃🏻👁 : azizano_935
-    - <---------- فاصلة عربية ---------->

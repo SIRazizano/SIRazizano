@@ -1,16 +1,2 @@
-  - 🔭 Hi Folks, my name is Abdul-Aziz, but I prefer naming me Aziz ( don't ask me, ask ChatGPT )
-  - 🌱 I like what everybody hates, anything makes me in knowledge about the universe that I live in interests me and makes me study it, Here are some :
-      - Math 
-      - Chemistry 
-      - Physics
-      - Web Development 
-      - Computer Science 
-  - 👯 Currently Learning : 
-      - Web Development 
-      - Math 
-      - Graphic Design
-  - 🤔 If you know me well, you should see me always studying, searching, doing everything no one in my age does; I do all that stuff because I know my death is not a pen which i write and lift as much as I want; so I have to learn as much as I can about my life before I leave it as an ignorant
-  - 💬 Contact : 
-      - Instagram          : 5uifp
-      - Whatsapp           : +965 96656685 
-      - Discord            : ! 𝑺𝑰𝑹 | JoyBoy#4820 
+  Death is a small-defined term:
+| Absolute absence of knowledge |
